@@ -1,5 +1,5 @@
-### Caroline Kinnen 👋
-- 😄 Pronouns: ...
+### Caroline Kinnen - MSCAPP Student
+- Pronouns: She/Her/Hers
 
 Here are some ideas to get you started:
 
